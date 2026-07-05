@@ -1,5 +1,6 @@
 ## Hi there 👋
-file:///C:/Users/Markazi/Downloads/IMG_%DB%B2%DB%B0%DB%B2%DB%B6%DB%B0%DB%B6%DB%B3%DB%B0_%DB%B0%DB%B9%DB%B0%DB%B3%DB%B1%DB%B7,.jpg
+
+<img width="2590" height="842" alt="IMG_۲۰۲۶۰۶۳۰_۰۹۰۳۱۷," src="https://github.com/user-attachments/assets/b7633fc8-0421-41bb-b4e6-f3e40931364d" />
 
 
 
