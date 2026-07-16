@@ -1,4 +1,4 @@
-<img width="381" height="270" alt="🎮 Pony Town - Google Chrome 16_07_2026 06_06_46 ب ظ (2)" src="https://github.com/user-attachments/assets/9ec545eb-0bb1-4d93-a664-55be35c9ad12" />
+
 hᥱყᥲ
 
 ᴘʀᴏɴᴏᴜɴᴄᴇᴅ ᴀꜱ ꜱʜᴇ/ʜᴇʀ 💝
